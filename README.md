@@ -1,0 +1,4 @@
+# HUJCIWDUPE
+
+KURWA WYLOGOWYWUJ SIE
+pozdro od 2a i emkacza <333333
